@@ -1,2 +1,0 @@
-# aboutamii
-itssong
